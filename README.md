@@ -1,4 +1,4 @@
-<div class="tenor-gif-embed" data-postid="27445761" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/law-of-talos-karl-law-of-talos-law-of-talos-karl-silly-gif-27445761">Law Of Talos Karl Law Of Talos Sticker</a>from <a href="https://tenor.com/search/law+of+talos-stickers">Law Of Talos Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+
 
 <!--
 **fordsiee/fordsiee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+-->![Image](https://github.com/user-attachments/assets/854ae5f1-be2f-4048-bbdf-f63180782dab)
