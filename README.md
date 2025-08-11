@@ -16,7 +16,7 @@ hi there!
  
  ੈ✩‧₊ gravity falls ꧇ law of talos/endzone ꧇ exquisite corpse (all of books Poppy z. Brite) ꧇ identityV ꧇ re-animator ꧇ postal ꧇ woy ꧇ red dead redemption 2 ꧇ manhunt ꧇ sherlock holmes BBC ꧇ saihate station ꧇ squid game ꧇ gannibal ꧇ everymanHYBRID ꧇ detroit:become human ꧇ silent hill ꧇ doctor who ꧇ moral orel ꧇ dan vs ﹒┈ and more more more...
  
-╰─━━━─╯ and music ➫ london after midnight ꧇ the cure ꧇ щенки ꧇ nine inch nails ꧇ psychostick ꧇ Siouxsie and the Banshees ꧇ deftones ꧇ arch enemy ꧇ oingo boingo ꧇ pain ꧇ motörhead ꧇ xasthur ꧇ system of a down ꧇ korn ꧇ bauhaus ꧇ sanguis et cinis ꧇ pink floyd ꧇ queen ꧇ acid bath ꧇ panic! at the disco ꧇ msi ꧇ glass animals ꧇ arctic monkeys ꧇ kmfdm ꧇ depeche mode ꧇ агата кристи﹒﹒﹒AND MORE!  ॄ🕳‘⌔
+╰─━━━─╯ and music ➫ london after midnight ꧇ the cure ꧇ щенки ꧇ nine inch nails ꧇ psychostick ꧇ Siouxsie and the Banshees ꧇ deftones ꧇ arch enemy ꧇ oingo boingo ꧇ pain ꧇ motörhead ꧇ xasthur ꧇ system of a down ꧇ korn ꧇ bauhaus ꧇ sanguis et cinis ꧇ pink floyd ꧇ queen ꧇ acid bath ꧇ panic! at the disco ꧇ msi ꧇ glass animals ꧇ arctic monkeys ꧇ kmfdm ꧇ depeche mode ꧇ агата кристи﹒﹒﹒AND MORE! ॄ🕳‘⌔
 
 ...//▄︻デ══━一  ![Image](https://github.com/user-attachments/assets/c740cfee-0e08-4c43-8003-598486a4fff2) ![tumblr_a527570e6fa2e58bcb6e8601163edfee_c8d87d07_250](https://github.com/user-attachments/assets/d6f4b96a-3fab-4a7d-b156-a0fed8187244) *̩̩̥͙˚̩̥̩̥*̩̩͙‧͙
 
