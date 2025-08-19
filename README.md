@@ -1,4 +1,6 @@
-![divider-red](https://github.com/user-attachments/assets/8b78d7d6-3d08-4db7-b37c-149400b4c512)
+<p align="center">
+    <img width="300" src="https://github.com/user-attachments/assets/8b78d7d6-3d08-4db7-b37c-149400b4c512" >
+</p>
 
 ⎺⎻⎼⎽ ![thegodjeno-fire](https://github.com/user-attachments/assets/13cc3aac-80ed-4ebd-bf34-ba05ccf03345)
 
@@ -28,4 +30,6 @@ hi there!
 
 ✟ [STEAM.](https://steamcommunity.com/id/penyatopchik) ✟
 
-![law-of-talos-karl-law-of-talos](https://github.com/user-attachments/assets/27d0c75c-6967-452f-8284-9fa98097ca17) see you LATER, my friend! 𖤐 ☄︎
+<p align="center">
+    <img width="300" src="https://github.com/user-attachments/assets/fe02250b-c1c8-43b7-8b8f-57cc6e24ae3d" > see you LATER, my friend! 𖤐 ☄︎
+</p>
