@@ -7,7 +7,7 @@
 
 hi there!
 
-𖤐 call me fordsie ۫/ mers, or whatever you want, my friend.
+𖤐 call me fordsie ۫/ mers or whatever you want, my friend.
 
 𖤐 im not looking for a new friends yet. BUT!!! idm just chatting if we have the same interests. im very friendly ;)
 
