@@ -42,6 +42,11 @@
 
 ✟ [STEAM.](https://steamcommunity.com/id/penyatopchik) ✟
 
+<div align="center">
+  
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yc3xmkc5m4w3fm5p2o4gm367gq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a00e0e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+</div>
+
 <p align="center">
     <img width="300" src="https://github.com/user-attachments/assets/fe02250b-c1c8-43b7-8b8f-57cc6e24ae3d" > see you LATER, my friend! 𖤐 ☄︎
 </p>
