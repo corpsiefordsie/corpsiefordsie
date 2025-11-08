@@ -24,7 +24,7 @@
 
 #### ↪︎︎︎︎︎︎︎︎  ....﹒┈ ✧︎ ︎︎︎︎︎︎things what i love ⋆｡°✩ 
  
-ੈ✩‧₊ gravity falls ꧇ law of talos/endzone ꧇ exquisite corpse (all of books Poppy z. Brite) ꧇  the phantom of the opera ꧇ identityV ꧇ re-animator ꧇ postal ꧇ red dead redemption 2 ꧇ manhunt ꧇ sherlock holmes ꧇ saihate station ꧇ gannibal ꧇ everymanHYBRID ꧇ detroit:become human ꧇ silent hill ꧇ doctor who ꧇ death note ꧇ wander over yonder ꧇ moral orel ꧇ dan vs ﹒┈ and more more more...
+ੈ✩‧₊ gravity falls ꧇ law of talos/endzone ꧇ exquisite corpse (all of books Poppy z. Brite) ꧇  the phantom of the opera ꧇ identityV ꧇ re-animator ꧇ postal ꧇ red dead redemption 2 ꧇ manhunt ꧇ sherlock holmes ꧇ saihate station ꧇ hannibal ꧇ everymanHYBRID ꧇ detroit:become human ꧇ silent hill ꧇ doctor who ꧇ death note ꧇ wander over yonder ꧇ moral orel ꧇ dan vs ﹒┈ and more more more...
  
 ╰─━━━─╯ and music ➫ london after midnight ꧇ the cure ꧇ щенки ꧇ nine inch nails ꧇ psychostick ꧇ siouxsie and the banshees ꧇ deftones ꧇ arch enemy ꧇ oingo boingo ꧇ pain ꧇ motörhead ꧇ xasthur ꧇ system of a down ꧇ korn ꧇ bauhaus ꧇ sanguis et cinis ꧇ pink floyd ꧇ queen ꧇ acid bath ꧇ птицу емъ ꧇ panic! at the disco ꧇ msi ꧇ glass animals ꧇ arctic monkeys ꧇ kmfdm ꧇ depeche mode ꧇ агата кристи﹒﹒﹒AND MORE! ॄ🕳‘⌔
 
