@@ -24,9 +24,9 @@
 
 #### ↪︎︎︎︎︎︎︎︎  ....﹒┈ ✧︎ ︎︎︎︎︎︎things what i love ⋆｡°✩ 
  
-ੈ✩‧₊ gravity falls ꧇ law of talos/endzone ꧇ exquisite corpse (and all of books Poppy z. Brite) ꧇ identityV ꧇ the phantom of the opera ꧇ re-animator ꧇ postal ꧇ red dead redemption 2 ꧇ manhunt ꧇ sherlock holmes ꧇ saihate station ꧇ hannibal ꧇ everymanHYBRID ꧇ detroit:become human ꧇ silent hill ꧇ doctor who ꧇ death note ꧇ wander over yonder ꧇ moral orel ꧇ dan vs ﹒┈ and more more more...
+ੈ✩‧₊ gravity falls ꧇ law of talos/endzone ꧇ exquisite corpse (and all of books Poppy z. Brite) ꧇ identityV ꧇ alice: madness returns ꧇ the phantom of the opera ꧇ re-animator ꧇ postal ꧇ red dead redemption 2 ꧇ manhunt ꧇ sherlock holmes ꧇ saihate station ꧇ hannibal ꧇ everymanHYBRID ꧇ detroit:become human ꧇ silent hill ꧇ doctor who ꧇ death note ꧇ wander over yonder ꧇ moral orel ꧇ dan vs ﹒┈ and more more more...
  
-╰─━━━─╯ and music ➫ london after midnight ꧇ the cure ꧇ щенки ꧇ nine inch nails ꧇ psychostick ꧇ siouxsie and the banshees ꧇ deftones ꧇ arch enemy ꧇ oingo boingo ꧇ pain ꧇ motörhead ꧇ xasthur ꧇ system of a down ꧇ korn ꧇ bauhaus ꧇ sanguis et cinis ꧇ pink floyd ꧇ queen ꧇ acid bath ꧇ птицу емъ ꧇ panic! at the disco ꧇ msi ꧇ glass animals ꧇ arctic monkeys ꧇ kmfdm ꧇ depeche mode ꧇ агата кристи﹒﹒﹒AND MORE! ॄ🕳‘⌔
+╰─━━━─╯ and music ➫ london after midnight ꧇ the cure ꧇ щенки ꧇ nine inch nails ꧇ malace mizer ꧇ siouxsie and the banshees ꧇ deftones ꧇ arch enemy ꧇ oingo boingo ꧇ pain ꧇ motörhead ꧇ xasthur ꧇ system of a down ꧇ korn ꧇ bauhaus ꧇ sanguis et cinis ꧇ pink floyd ꧇ queen ꧇ acid bath ꧇ птицу емъ ꧇ panic! at the disco ꧇ msi ꧇ glass animals ꧇ arctic monkeys ꧇ kmfdm ꧇ depeche mode ꧇ агата кристи﹒﹒﹒AND MORE! ॄ🕳‘⌔
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/c740cfee-0e08-4c43-8003-598486a4fff2" /> <img src="https://github.com/user-attachments/assets/d6f4b96a-3fab-4a7d-b156-a0fed8187244" /> 
