@@ -11,9 +11,9 @@
 
 𖤐 call me fordsie or whatever you want, my friend.
 
-𖤐 im not looking for a new friends yet. BUT!!! idm just interact if we have the similar interests. im very friendly ;)
+𖤐 i'm looking for a new friends yet. idm just interact if we have the similar interests. im very friendly ;)
 
-𖤐 study medicine and love everything related to it. bluuh
+𖤐 study medicine and love everything related to it. + goth dude bluuh
 
 <p align="center">
     <img width="400" src="https://github.com/user-attachments/assets/3de8ca53-56cd-4b6c-a60f-f87988389c59" >
@@ -26,7 +26,7 @@
  
 ੈ✩‧₊ gravity falls ꧇ law of talos/endzone ꧇ exquisite corpse (and all of books Poppy z. Brite) ꧇ identityV ꧇ alice: madness returns ꧇ the phantom of the opera ꧇ re-animator ꧇ postal ꧇ no, i'm not a human ꧇ red dead redemption 2 ꧇ manhunt ꧇ sherlock holmes ꧇ saihate station ꧇ sweet pool ꧇ hannibal ꧇ everymanHYBRID ꧇ detroit:become human ꧇ silent hill ꧇ doctor who ꧇ death note ꧇ wander over yonder ꧇ moral orel ﹒┈ and more more more...
  
-╰─━━━─╯ and music ➫ london after midnight ꧇ the cure ꧇ щенки ꧇ nine inch nails ꧇ siouxsie and the banshees ꧇ deftones ꧇ arch enemy ꧇ oingo boingo ꧇ christian death ꧇ motörhead ꧇ system of a down ꧇ korn ꧇ bauhaus ꧇ sanguis et cinis ꧇ pink floyd ꧇ queen ꧇ acid bath ꧇ птицу емъ ꧇ msi ꧇ glass animals ꧇ arctic monkeys ꧇ kmfdm ꧇ depeche mode ꧇ агата кристи ꧇ will wood ꧇ mccafferty﹒﹒﹒AND MORE! ॄ🕳‘⌔
+╰─━━━─╯ and music ➫ london after midnight ꧇ the cure ꧇ щенки ꧇ nine inch nails ꧇ siouxsie and the banshees ꧇ deftones ꧇ arch enemy ꧇ oingo boingo ꧇ christian death ꧇ motörhead ꧇ system of a down ꧇ korn ꧇ bauhaus ꧇ sanguis et cinis ꧇ mitski ꧇ tyler, the creator ꧇ queen ꧇ acid bath ꧇ acid ghoust ꧇ птицу емъ ꧇ glass animals ꧇ arctic monkeys ꧇ kmfdm ꧇ depeche mode ꧇ агата кристи ꧇ will wood ꧇ mccafferty﹒﹒﹒AND MORE! ॄ🕳‘⌔
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/c740cfee-0e08-4c43-8003-598486a4fff2" /> <img src="https://github.com/user-attachments/assets/d6f4b96a-3fab-4a7d-b156-a0fed8187244" /> 
