@@ -11,7 +11,7 @@
 
 𖤐 call me fordsie or whatever you want, my friend.
 
-𖤐 i'm looking for a new friends yet. idm just interact if we have the similar interests. im very friendly ;)
+𖤐 i’m not sure about making new friends. but idm just interact if we have the similar interests. im very friendly ;)
 
 𖤐 study medicine and love everything related to it. + goth dude bluuh
 
