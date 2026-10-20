@@ -50,3 +50,6 @@
 <p align="center">
     <img width="300" src="https://github.com/user-attachments/assets/fe02250b-c1c8-43b7-8b8f-57cc6e24ae3d" > see you LATER, my friend! 𖤐 ☄︎
 </p>
+
+<p align="right"> 
+    ps. I’m really sorry if my jokes might be offensive!
